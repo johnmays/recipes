@@ -8,11 +8,13 @@ Some of these recipes are self-explanatory, but exist merely to remind me of the
 - Japanese Curry
 - Butter tofu
 - Tofu tikka masala
+- Tofu paneer
 - Chana masala
 - Reuben
 - Ramen & Egg
 - Vegetable Korma
 - Potstickers
+- Makhni
 
 # Lunches
 - asian efficiency meal
