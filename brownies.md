@@ -20,8 +20,10 @@ A substantial brownie, with nuts.
 ### Prep:
 - get an 8 inch by 8 inch high-walled bake pan (glass is best)
 - rub a thin coat of butter all over it
-- cut parchment paper so that you have foldable flaps and an 8" base that you can create a volume with
+- cut parchment paper so that you have foldable flaps and an 8" base that you can create a volume with, like so:
+![cutting instructions for parchment paper](images/parchment_paper.png)
 - put the parchment paper volume into the baking pan and stick it to the tray with the butter
+- you can even use a bit of extra butter to get the folded corners to stick together!
 ### Main Process:
 - mix dry ingredients in large bowl
 - mix wet ingredients in small bowl (make sure to disperse eggs well)

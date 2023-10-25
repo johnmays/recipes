@@ -1,0 +1,5 @@
+# Adobe Illustrator:
+*.ai
+
+# MacOS:
+.DS_store
