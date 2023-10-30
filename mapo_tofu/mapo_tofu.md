@@ -26,7 +26,7 @@ According to [J. Kenji Lopez](https://www.youtube.com/watch?v=dElALuJ9Xo8&ab_cha
 - minced ginger (treat exactly like garlic)
 ## Instructions:
 If you don't have a wok (I don't), cook this in a cast-iron pan or high-walled steel pan if you must.
-You can do these four things simultaneously.
+You can do these things simultaneously.
 ### Prep:
 It's easy to do some of these at the same time, but you should probably do all of it before you get stuff going in your pan/wok.
 - **Rice:** 
