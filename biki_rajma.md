@@ -6,15 +6,15 @@ A version of the Punjab-style rajma cooked & eaten by bodybuilder Biki Singh (<3
 ## Ingredients:
 (These portions make 8 servings)
 - half of a large white onion
-- 2 small or 1 medium tomato 
+- 1 small tomato
 - 3 tsp garlic ginger paste; add more to taste if necessary
-- 4 16oz cans of red kidney beans
-- 2.5 tsp of turmeric
-- 3 tsp of coriander
-- 2.5 tsp of red chili powder (1.5 for mom)
-- 2.5 tsp garam masala
+- 2 16oz cans of red kidney beans
+- 1 tsp of turmeric
+- 1.5 tsp of coriander
+- 1 tsp of red chili powder (1.5 for mom)
+- 1.5 tsp garam masala
 - 1-2 tsp of salt (really, do it to taste because garam masala & the beans will have plenty of it)
-- 4 tsp of ghee (butter is fine substitute)
+- 2 tsp of ghee (butter is fine substitute)
 ## Instructions:
 ...
 - ensure tomato, onion, garlic, and ginger are a paste
