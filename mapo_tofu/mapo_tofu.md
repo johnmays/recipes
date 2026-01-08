@@ -10,25 +10,25 @@ According to [J. Kenji Lopez](https://www.youtube.com/watch?v=dElALuJ9Xo8&ab_cha
 - one 250-350g pack of extra firm/firm silken tofu
 - handful of dried mushrooms (for the broth and the mince)
 - piece of kombu (optional)
-- 1/2 tbsp of sichuan peppercorns
+- 1.5 tbsp of sichuan peppercorns
 - 3 garlic cloves
-- 2 tsp asian (red) chili powder (cayenne would be a fine substitute)
+- 3 tsp asian (red) chili powder
 - A few tbsp of cooking oil
-- 1 tsp "shaoxin" or "shao xing" cooking rice wine (usually comes with a red label)
-- 1 tsp sugar
+- 2 tsp "shaoxin" or "shao xing" cooking rice wine (usually comes with a red label)
+- 1 tsp honey (or sugar if you don't have honey)
 - 1 tsp corn starch
+- 1 tsp msg
 - 1 tsp sesame oil
-- 1 tsp light soy sauce
-- chili bean paste ("doubanjiang" or "toban djan") (usually also comes with a red label)
-- 1 stalk of green onion
+- 2 tsp dark chinese vinegar (goes in right after slurry)
+- 2 tsp soy sauce
+- 1-1.5 tbsp chili bean paste ("doubanjiang" or "toban djan") (usually also comes with a red label)
+- 2 stalk of green onion
 ### Stuff I left out that is pretty common to include:
-- 1 tsp dark chinese vinegar (goes in right after slurry)
 - minced ginger (treat exactly like garlic)
 ## Instructions:
-If you don't have a wok (I don't), cook this in a cast-iron pan or high-walled steel pan if you must.
-You can do these things simultaneously.
+If you don't have a wok (I don't), cook this in a cast-iron pan or high-walled steel pan.
 ### Prep:
-It's easy to do some of these at the same time, but you should probably do all of it before you get stuff going in your pan/wok.
+It's easy to do some of these at the same time, but you should probably do most of it before you get stuff going in your pan/wok.
 - **Rice:** 
 Get some nice medium grain white rice going to eat this with.
 - **Slurry:** 
@@ -45,9 +45,9 @@ Mince it on the finer side.
 - Mince up a handful of the mushrooms from the broth, put them in a cold pan with the oil, and turn heat to medium-low.  Fry mushrooms for about 3 minutes.
 - Add the chili bean paste to the oil, wait til the oil is very red before the next step.  (2-3 minutes of frying the paste)
 - Add garlic and red chilli powder.  Fry for about a minute.
-- Add 3/4 a cup of broth, your tsp of sugar, tsp of soy sauce, and tsp of wine.  Let go for 1 minute.
+- Add 3/4 a cup of broth, your sugar, wine, and soy sauce.  Let go for 1 minute.
 - Strain & add tofu in.  Gently push around with spatula.  Do not stir very hard because it's fairly easy to break up silken tofu.
 - Keep pushing the tofu & liquid around until it starts to become a thin sauce.  Could take 2-5 minutes.
 - Add the slurry, add the sichuan peppercorn powder, stir around a bit.
-- Serve with rice, top with chopped green onion or other green.
+- Serve with rice, top with chopped green onion.
 
