@@ -1,0 +1,55 @@
+# Lemon Chickpea Soup
+- [Source](https://rainbowplantlife.com/lemony-chickpea-soup/#wprm-recipe-container-39541)
+- I hate how this woman writes her recipes.
+- Makes 3-4 servings.  I've done a 1.5x in the past.
+- Easy to overdo it with black pepper.
+
+## Ingredients
+- 2x 16oz cans of chickpeas.  Goya seems okay.
+- 2 fatass carrots or one bunch of normal organic carrots
+- 1 large or two normal yellow ernion
+- 5 cloves of garlic
+- 2 tbsp tomato paste
+- 4 cups vegetable broth
+- 1 lemon (juice and zest)
+- 100 g spinach (kale ok replacement. you must remove stems)
+- 1/2 cup milk
+- 1/4 cup nutritional yeast
+- 2 tsp soy sauce
+- 1/3 cup white rice (long or medium grain)
+- 2 tsp dried oregano
+- 1/2 tsp coriander powder
+- 1/2 tsp turmeric powder
+- 1/2 tsp red pepper flakes
+- black pepper to taste
+
+## Steps:
+- dice onion and carrot to soup-sized pieces
+- put in big pot slash cauldron with olive erl, turn on heat, pinch of salt
+- let those fry for 10 min
+- dice garlic & add it in to sizzling onion & carrot
+- let garlic fry for 2 min
+- add tomato paste & spices (oregano, coriander, red pepper flakes, coriander)
+- stir this around for like 2 mintues
+- rinse the rice briefly & add it
+- add, in fairly quick succession:
+  - a drained can of chickpeas
+  - a pinch of salt
+  - a pinch of black pepper
+  - the vegetable broth
+  - half of the dill, chopped
+- reduce heat, cover, let berl for 15 minutes
+- in the meantie, work on the puree:
+  - to blender, add:
+    - can of chickpeas, drained
+    - whole zest of lemon
+    - most of the juice of lemon (1 tbsp to add later)
+    - nutritional yeast
+    - soy sauce
+    - milk
+  - blend until creamy
+- add to soup
+- chop spinach/green, add it and let it wilt
+- turn off the heat
+- add rest of dill, coarsely chopped, 1 tbsp lemon juice, salt & pepper to taste.
+- once you've added to a bowl, olive erl drizzle on top and sprig of dill
