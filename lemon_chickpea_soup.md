@@ -1,7 +1,7 @@
 # Lemon Chickpea Soup
 - [Source](https://rainbowplantlife.com/lemony-chickpea-soup/#wprm-recipe-container-39541)
 - I hate how this woman writes her recipes.
-- Makes 3-4 servings.  I've done a 1.5x in the past.
+- Makes kind of a disappointing 4-5 servings.  I've done a 1.5x of this recipe in the past.
 - Easy to overdo it with black pepper.
 
 ## Ingredients
@@ -12,7 +12,7 @@
 - 2 tbsp tomato paste
 - 4 cups vegetable broth
 - 1 lemon (juice and zest)
-- 100 g spinach (kale ok replacement. you must remove stems)
+- 100 g spinach (kale is an ok replacement. you must remove stems)
 - 1/2 cup milk
 - 1/4 cup nutritional yeast
 - 2 tsp soy sauce
@@ -24,12 +24,13 @@
 - black pepper to taste
 
 ## Steps:
-- dice onion and carrot to soup-sized pieces
+- dice onion and carrot to soup-appropriate pieces
 - put in big pot slash cauldron with olive erl, turn on heat, pinch of salt
 - let those fry for 10 min
-- dice garlic & add it in to sizzling onion & carrot
+- dice garlic & add it in with onion & carrot
+- chop dill into two fine piles right now.  you'll need one pile kind of soon
 - let garlic fry for 2 min
-- add tomato paste & spices (oregano, coriander, red pepper flakes, coriander)
+- add tomato paste & spices (2tsp oregano, 1/2 tsp coriander, 1/2 tsp red pepper flakes, 1/2 tsp coriander)
 - stir this around for like 2 mintues
 - rinse the rice briefly & add it
 - add, in fairly quick succession:
@@ -39,17 +40,17 @@
   - the vegetable broth
   - half of the dill, chopped
 - reduce heat, cover, let berl for 15 minutes
-- in the meantie, work on the puree:
+- in the meantime, work on the puree:
   - to blender, add:
-    - can of chickpeas, drained
+    - 1 can of chickpeas, drained
     - whole zest of lemon
-    - most of the juice of lemon (1 tbsp to add later)
+    - most of the juice of lemon (1-2 tbsp to add later)
     - nutritional yeast
     - soy sauce
     - milk
   - blend until creamy
-- add to soup
+- add to soup once creamy
 - chop spinach/green, add it and let it wilt
-- turn off the heat
+- turn off the heat (like a minute after the green has been added)
 - add rest of dill, coarsely chopped, 1 tbsp lemon juice, salt & pepper to taste.
-- once you've added to a bowl, olive erl drizzle on top and sprig of dill
+- once you've added to a bowl, olive erl drizzle on top and a sprig of dill
