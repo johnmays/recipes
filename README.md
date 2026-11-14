@@ -1,27 +1,3 @@
-Some of these recipes are self-explanatory, but exist merely to remind me of their existence.
+# Recipes
 
-# Dinner Meal Recipes
-- cauliflower wings
-- fries
-- sambar
-- legacy carbonara
-- Japanese Curry
-- Butter tofu
-- Tofu tikka masala
-- Tofu paneer
-- Chana masala
-- Reuben
-- Ramen & Egg
-- Vegetable Korma
-- Potstickers
-- Makhni
-
-# Lunches
-- asian efficiency meal
-- RedHeart bowl
-- peanut butter and jelly
-
-# Breakfast
-- bagel
-- cereal
-- sweet protein quesadilla
+I try to eat healthy.  I try to get more protein that normal, but not too much.  I try to avoid post-industrial foods and ingredients.  I try to get all my micronutrients.  I don't eat meat or poultry at all.  I eat fish and shellfish now, but I was vegetarian for six years.  I embrace full-fat dairy.  I prefer olive oil, avocado oil, and a little butter.  I am fortunate to have the food I have and the opportunities to eat what I eat.  I try not to overthink food, but I frequently do.  I try to avoid plastics and polyfluoroalkyl substances.  I like putting food in jars.  I love jams and nut butters.  Honey and maple syrup are preferable to sugar but you have to use it sometimes.  I like cast iron.  I hate American supermarket produce.  I like lentils.  I like spinach.  I like dill and cilantro.  I like sichuan peppercorn.  A lot of American feta is worthless, but good Greek feta is one of the best foods there is.  I keep toaster strudels in the freezer sometimes.  I have too many energy drinks.  I don't drink any alcohol but I like to use wine to cook.  I especially like Italian, Greek, Chinese, Askhenazi, Levantine, Korean, Japanese, Mexican, Egyptian, and Germanic cuisine.  I don't like Thai cuisine at all.  There is a lot of great food in New York City, but there is even more mid food in New York City.
